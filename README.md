@@ -1,0 +1,1 @@
+Semoga a dan b
